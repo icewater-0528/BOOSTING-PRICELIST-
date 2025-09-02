@@ -1,2 +1,0 @@
-# BOOSTING-PRICELIST-
-Hi! Welcome to Ice's Social Media Boosting Service! This pricelist is created for your easy navigation. We are looking forward for our transaction. Have a good day ahead! 💙
